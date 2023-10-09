@@ -1,1 +1,1 @@
-Nouns DAO has laid the foundation for a collection of open-source projects, and exciting things are on the horizon for what's to come. Stay tuned for more updates and developments from this innovative community.
+[Nouns DAO](https://nouns.wtf) has laid the foundation for a collection of open-source projects, and exciting things are on the horizon for what's to come. Stay tuned for more updates and developments from this innovative community.
